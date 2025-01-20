@@ -1,0 +1,1 @@
+Uzspiežot uz logo, websaits paries uz normālo Google lapu nevis uz šito sūdu)
